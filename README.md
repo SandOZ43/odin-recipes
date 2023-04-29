@@ -1,3 +1,3 @@
 # odin-recipes
 
-amazing recipes
+amazing vegan recipes
